@@ -1,4 +1,4 @@
-- 👋 Hi, I’m YichengDu
+- 👋 Hi, I’m Claire Du.
 - 📫 How to reach me : yicheng.du@sonos.com
 
 <!---
